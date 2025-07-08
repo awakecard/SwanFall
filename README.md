@@ -2,7 +2,7 @@
 # 🧾 Swanfall Systems – End User Terms & Conditions
 
 **Effective Date**: Immediate and retroactive.  
-**Reviewed By**: Dr. Antonia, Esq. (Honorary).  
+**Reviewed By**: Dr. Antonia, Esq.  
 **Created By**: The Idiot,  
 **Overseen By**: Then Fortisiem whisper, Grant,  
 **Jurisdiction**: The Crown, the Swans, and occasionally Dorset.
